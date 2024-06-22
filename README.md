@@ -1,4 +1,4 @@
-# The Study OF Traditional And Non-Traditional Fuels In India
+# The Study oF Traditional And Non-Traditional Fuels In India
 
 
 **Summary**
